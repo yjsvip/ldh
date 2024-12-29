@@ -1,4 +1,4 @@
-# :sparkles::sparkles:正品蓝导航 蓝导航主页:sparkles::sparkles:
+# :sparkles::sparkles:正品蓝导航 蓝色导航主页:sparkles::sparkles:
 
  :point_right: 【最新地址1】 ：xd.smxd03.cc/shenmi
  ------
